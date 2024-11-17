@@ -1,5 +1,3 @@
----
-
 # 👋 Hi, I’m @Cyptx!  
 
 Welcome to my corner of the digital universe! Here’s a bit more about me:  
